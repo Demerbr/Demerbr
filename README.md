@@ -1,4 +1,4 @@
-## Olá! eu sou o Demerson Luiz da Silva de Barros Analista em suporte técnico e estudante de Programação web 👋
+## Olá! eu sou o Demerson Luiz da Silva de Barros Desenvolverdor web 👋
 
 
 
